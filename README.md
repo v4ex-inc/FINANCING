@@ -1,2 +1,2 @@
-# FINANCING
+# Financing
 V4EX Inc. Financing
